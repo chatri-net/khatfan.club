@@ -1,2 +1,2 @@
 # khatfan.club
-⚛ Chatri Khatfan ∙ Quantum & AI Explorer ⚛
+🛰️ Chatri Khatfan ∙ Quantum & AI Explorer 🌐
